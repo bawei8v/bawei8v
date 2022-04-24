@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bawei8v
-- 👀 I’m interested in ecomomy.
+- 👀 I’m interested in ecomomyics.
 - 🌱 I’m currently learning Econometrics.
 - 💞️ I’m looking to collaborate on ...
 - 📫 My Wechat is bawei8v8v
